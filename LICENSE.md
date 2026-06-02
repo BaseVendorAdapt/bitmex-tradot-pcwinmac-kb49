@@ -1,4 +1,4 @@
-# 
+# Nouveau bitmex trading bot outils pour Mac OS | Ultime bitmex trading bot outils pour PC Windows. Avec API d'échange décentralisé et API d'échange centralisé — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
